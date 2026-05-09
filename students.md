@@ -1,3 +1,3 @@
-### Your Name
+### Malik Al-Saed 
 
-### Your Major
+### Computer Engineering
