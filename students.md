@@ -1,3 +1,5 @@
-### Malik Al-Saed 
+### Salsabeel Sameeh | Computer Engineering
 
-### Computer Engineering
+### Hala Abukhalaf | Computer Engineering
+
+### Malik Al-Saed | Computer Engineering
