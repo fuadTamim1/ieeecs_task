@@ -1,4 +1,3 @@
-### Salsabeel Sameeh
+### Salsabeel Sameeh | Computer Engineering
 
-### Computer Engineering
-
+### Hala Abukhalaf | Computer Engineering
