@@ -1,4 +1,3 @@
-### Your Name
+### Salsabeel Sameeh | Computer Engineering
 
-### Your Major
-Hala Abukhalaf | Computer Engineering
+### Hala Abukhalaf | Computer Engineering
